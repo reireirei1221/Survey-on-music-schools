@@ -1,1 +1,1 @@
-# Survey-on-music-shools
+# Survey-on-music-schools
